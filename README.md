@@ -5,8 +5,31 @@
 
 
 
+
+
+
+
+
+
+
+
+
+
+
 [ShigetoraRikaSkin](https://puu.sh/tlUJx/f556020b1b.osk)
 ![](https://pp.vk.me/c604829/v604829030/3cf65/YoGGcaG1tmk.jpg)
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
