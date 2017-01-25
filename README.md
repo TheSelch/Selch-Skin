@@ -35,3 +35,14 @@
 
 [+-Selch+-WWW++-RwbyRubySkin](https://puu.sh/tlU33/49e227c32b.osk)
 ![](https://pp.vk.me/c604829/v604829030/3cf6e/a8uWqfZejPI.jpg)
+
+
+
+
+
+
+
+
+
+[Chitanda](https://puu.sh/t2Ht5/f2997bf1f6.osk)
+![](https://pp.vk.me/c604719/v604719030/27189/IoGl1uqfgck.jpg)
