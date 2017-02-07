@@ -1,5 +1,21 @@
 **Even if it says can't import the skins should work fine. If you're sure it doesn't work make sure you are on beta or cuttingedge. If you still can't get the skin to work mention me in twitch chat and explain the problem in detail.**
 
+[-+Seoul+](https://ndb.moe/s4j)
+![](http://hnng.moe/f/NAQ)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
   [-+Seouless'+v7+16-9](https://puu.sh/turm5/c0c67a8bfa.osk)
 ![](https://pp.vk.me/c604425/v604425030/49872/O1DJ5mrp1rE.jpg)
 
