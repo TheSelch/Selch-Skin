@@ -1,19 +1,8 @@
-**Even if it says can't import the skins should work fine. If you're sure it doesn't work make sure you are on beta or cuttingedge. If you still can't get the skin to work mention me in twitch chat and explain the problem in detail.**
+**Twitch - https://www.twitch.tv/selch**
 
-[Seoul__16-9.osk](https://drive.google.com/uc?export=download&confirm=QXAn&id=1EJzzdiFD7D5vsuhRa5dLmKrqNa9w9PXb)
-![](https://i.imgur.com/MdIiiIx.png)
+**Twitter - https://twitter.com/Selcchik**
 
-
-
-
-
-
-
-
-
-
-[-+Seoul+](https://ndb.moe/s4j)
-![](http://hnng.moe/f/NAQ)
+**Osu - https://osu.ppy.sh/users/7069483**
 
 
 
@@ -25,14 +14,8 @@
 
 
 
-
-
-
-  [SelchikMx](https://puu.sh/z1Pob/7a0c7b15dd.osk)
-![](https://i.imgur.com/Qu9FJoB.png)
-
-
-
+[HomeTown](https://drive.google.com/file/d/1cVtwuoAdQ1nVv9kn_cj7vlKASU7N5YUa/view)
+![](https://i.imgur.com/MzZF7tl.png)
 
 
 
@@ -44,3 +27,24 @@
 
  [SelchikNagisa](https://drive.google.com/uc?export=download&confirm=NKoE&id=1QdiM3n2U9_D0_dnklLjjlp6fWKzlmwZz)
 ![](https://i.ppy.sh/cc86c079978bf35b950fcd182669d81b9287d86b/68747470733a2f2f70702e757365726170692e636f6d2f633834303133392f763834303133393538362f35633830662f515936764d44364e43376b2e6a7067)
+
+
+
+
+
+
+
+
+
+[#-Audification](https://drive.google.com/file/d/1RCYEsZeHIgI-ucTIB8PEZ9yZT2NIDOWd/view)
+![](https://i.ppy.sh/7afddddbb74c79fd223d493403ecad5aedc5c9ab/68747470733a2f2f692e696d6775722e636f6d2f4a7044547a47732e706e67)
+
+
+
+
+
+
+
+
+[Utopia](https://drive.google.com/open?id=1bx8SaqeD06wFnGwm391G3uDkoH1FDJiO)
+![](https://i.imgur.com/KyJqMcs.png)
